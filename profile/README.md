@@ -1,8 +1,8 @@
-# The best solar companies are Popular Powered
+# Tomorrow must be distributed today 
 
-## Popular Power integrates site monitoring into a single interface. Eliminate manual processes and gain actionable insights that increase revenue and save costs.
+## Popular Power is the intelligence layer for solar & BESS operations, powering the most critical shift of our time. We give distributed generation solar companies the insights they need to protect revenue, meet guarantees, and grow faster.
 
 See more at [Popular Power](https://popularpower.io)
 
 
-
+#### The best solar companies are Popular Powered
